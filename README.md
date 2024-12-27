@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new stuff and sports.
 - 🌱 I’m currently learning Artificial Intelligence
 - 💞️ I’m looking to collaborate on different projects which involves AI ..
-- 📫 How to reach me @bsai23029@itu.edu.p
+- 📫 How to reach me abdmoiz222@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: unemployed
 
